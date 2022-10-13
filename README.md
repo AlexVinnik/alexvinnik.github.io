@@ -1,1 +1,0 @@
-# alexvinnik.github.io
